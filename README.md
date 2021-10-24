@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @eeeeemmm
 - 👀 I’m interested in ...coding&game development
-- 🌱 I’m currently learning ...coding
+- 🌱 I’m currently learning ...coding(lotsofcoding)
 - 💞️ I’m looking to collaborate on ...have noProject nowbut....
 - 📫 How to reach me ... justleave atext ifyou can
 
